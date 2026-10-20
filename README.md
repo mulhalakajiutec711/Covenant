@@ -216,4 +216,4 @@ Covenant for Kodi is available as a full free version with all features and upda
 Unlock the full potential of your Kodi media center today! Download **Covenant for Kodi** for free and enjoy a seamless streaming experience.
 
 ---
-**Last updated:** 2026-10-20 14:50:14 UTC
+**Last updated:** 2026-10-20 19:03:20 UTC
